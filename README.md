@@ -1,1 +1,1 @@
-(https://theprocrastinater0.github.io/Bohoraphat-volleyball/)
+https://theprocrastinater0.github.io/GalkotTeej/
